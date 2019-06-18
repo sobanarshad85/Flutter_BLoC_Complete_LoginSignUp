@@ -17,6 +17,6 @@ https://www.linkedin.com/in/sobanarshad85
 https://www.twitter.com/sobanarshad85
 https://www.facebook.com/sobanarshad85
 https://www.instagram.com/sobanarshad85
-https://www.github.com/sobanarhsad85
+https://www.github.com/sobanarshad85
 https://www.medium.com/@sobanarshad85
-+923034645060
++92-303-4645-060
